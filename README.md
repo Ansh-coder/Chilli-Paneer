@@ -1,3 +1,4 @@
+Recipe of chilli paneer
 Take paneer in a bowl.
 Add corn flour, maida, black pepper and salt.
 Add a little water and mix thoroughly.
